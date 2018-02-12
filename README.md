@@ -56,7 +56,8 @@ None officially, but:
 ## Sightseeing & Activities
 * Lady Bird Lake Hike & Bike trail - 10 mile trail around the water downtown (has lots of bridges for smaller loops). Great for jogging.
 * Kayaking / Canoeing / Stand Up Paddleboarding - you can rent any of these at [The Rowing Dock](https://www.rowingdock.com/)
-* Peter Pan mini-golf
+* [Barton Springs](https://austintexas.gov/department/barton-springs-pool) - a necessity in summer, since it's spring fed and stays cold year round.
+* [Peter Pan mini-golf](http://peterpanminigolf.com/)
 * [Alamo Drafthouse](https://drafthouse.com/austin) - the theatre that serves you food and drinks. They're in lots of cities now, but they're from Austin.
 * Blanton Museum - art museum on UT campus. Home of Elsworth Kelly's piece "Austin".
 
