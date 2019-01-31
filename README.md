@@ -19,6 +19,7 @@ None officially, but:
 
 * [The Heywood](https://www.heywoodhotel.com/) - small, 7 room boutique hotel in East Austin. Perfect for small mini-summits, you can reserve all the rooms and have the run of the place (best of both worlds with an AirBNB & hotel)
 * [Hotel Van Zandt](http://www.hotelvanzandt.com/) - New Kimpton hotel near downtown
+* [The Carpenter Hotel](http://carpenterhotel.com/) - Boutique hotel with central location
 
 ## Coffee/brunch/breakfast
 
@@ -28,7 +29,7 @@ None officially, but:
 * [Radio](http://radiocoffeeandbeer.com/) - a bit further south but worth the trip. Coffee and beer served out of an old house, surrounded by food trucks, including [Veracruz All Natural](http://www.veracruzallnatural.com/) (which many say has the best migas breakfast taco)
 
 ## Casual Restaurants
-* [Torchy's Tacos](https://torchystacos.com/) - An Austin taco institution
+* [Torchy's Tacos](https://torchystacos.com/) - An Austin taco institution. Not traditional, but delicious.
 * [La Barbecue](https://www.labarbecue.com/) - As good as the esteemed Franklin BBQ, but less waiting in line.
 * [Matt's El Rancho](http://mattselrancho.com/) - Classic Tex Mex and good margaritas. Good for large groups.
 * [Ramen Tatsu-ya](http://ramen-tatsuya.com/) - Best ramen in Austin
@@ -37,7 +38,7 @@ None officially, but:
 
 ## Fancier Restaurants
 * [Uchi / Uchiko](https://uchiaustin.com/) - Best sushi & japanese food in Austin
-* [Launderette](https://launderetteaustin.com/) - Mediterranean inspired
+* [Launderette](https://launderetteaustin.com/) - Mediterranean inspired. Save room for dessert.
 * [Dai Due](http://www.daidue.com/) - Mostly all local food, focus on local meats. Lots of things cooked over an open fire.
 * [Kemuri Tatsu-ya](http://kemuri-tatsuya.com/) - On Bon Apetit's best new restaurant list. Japanese / Texas BBQ mashup. Fun environment and great drinks.
 * [Odd Duck](https://oddduckaustin.com) - Classic Austin Story: it was a food truck, and now it's a successful restaurant. Interesting, gourmet, food without feeling formal.
@@ -57,9 +58,9 @@ None officially, but:
 * Lady Bird Lake Hike & Bike trail - 10 mile trail around the water downtown (has lots of bridges for smaller loops). Great for jogging.
 * Kayaking / Canoeing / Stand Up Paddleboarding - you can rent any of these at [The Rowing Dock](https://www.rowingdock.com/)
 * [Barton Springs](https://austintexas.gov/department/barton-springs-pool) - a necessity in summer, since it's spring fed and stays cold year round.
-* [Peter Pan mini-golf](http://peterpanminigolf.com/)
+* [Peter Pan mini-golf](http://peterpanminigolf.com/) - BYOB mini golf.
 * [Alamo Drafthouse](https://drafthouse.com/austin) - the theatre that serves you food and drinks. They're in lots of cities now, but they're from Austin.
-* Blanton Museum - art museum on UT campus. Home of Elsworth Kelly's piece "Austin".
+* [Blanton Museum](https://blantonmuseum.org/) - art museum on UT campus. Home of Elsworth Kelly's piece "Austin".
 
 ## Volunteering
 
